@@ -1,1 +1,2 @@
-# docs
+# ATTENTION!
+# ALL TROVEMAT DOCS ARE AVAILABLE UPON REQUEST IN [SUPPORT](https://trovemat.com/pages/support)
